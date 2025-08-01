@@ -1,0 +1,1 @@
+# faroush-template-shopify-V2
